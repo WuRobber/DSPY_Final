@@ -27,6 +27,6 @@
 
 ![Folder Tree](./FolderTree.png)
 
-## ==！！ 買就對了 ！！== ( 點擊下方圖片 )
+## ！！ 買就對了 ！！ ( 點擊下方圖片 )
 
 [![超派](./IMG_3740.png)](https://store.line.me/stickershop/product/24615628/zh-Hant?utm_source=gnsh_stickerDetail)[![謝謝](./IMG_3667.png)](https://store.line.me/stickershop/product/24615628/zh-Hant?utm_source=gnsh_stickerDetail)
